@@ -36,4 +36,4 @@ LinkedIn: www.linkedin.com/in/leela-mounika-byluppala-43a5a13b><br>
 Email: mouni3193@gmail.com><br>
 
 
-Thanks for stopping by! Let's build something amazing together. 🚀>
+Thanks for stopping by! Let's build something amazing together. 🚀
