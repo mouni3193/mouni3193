@@ -32,7 +32,7 @@ I'm committed to staying at the forefront of technology. Regularly exploring new
 Excited about the potential of collaborating with like-minded professionals and contributing to impactful projects. Let's connect and explore how my skills can contribute to your team's success.
 
 📫 <b>Contact:</b><br>
-LinkedIn: www.linkedin.com/in/leela-mounika-byluppala-43a5a13b><br>
+LinkedIn: www.linkedin.com/in/leela-mounika-byluppala-43a5a13b<br>
 Email: mouni3193@gmail.com><br>
 
 
